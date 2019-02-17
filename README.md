@@ -1,0 +1,2 @@
+# TUGAS1_AI_1301162755
+Tugas AI 
